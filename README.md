@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sushma722
+- 👀 I’m interested in technology related stuff
+- 🌱 I’m currently learning AI/Ml
+- 💞️ I’m looking to collaborate on AI/ML related projects
+- 📫 How to reach me sushmasreepuchakayala@gmail.com
